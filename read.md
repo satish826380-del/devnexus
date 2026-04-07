@@ -1,0 +1,1 @@
+for C:\Users\s\Desktop\devnexus\WhatsApp Image 2026-03-20 at 11.09.12 AM.jpeg this image change the details as Founder and CEO and C:\Users\s\Desktop\devnexus\WhatsApp Image 2026-04-05 at 2.24.42 PM.jpeg for this add marketing head and for C:\Users\s\Desktop\devnexus\WhatsApp Image 2026-04-05 at 3.33.29 PM.jpeg this add coo and co founder
